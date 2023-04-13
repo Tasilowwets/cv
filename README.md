@@ -1,4 +1,4 @@
 
-https://atasilov.github.io/my-profile/index.html
+https://tasilowwets.github.io/cv/bielden.html
 
 #CV
